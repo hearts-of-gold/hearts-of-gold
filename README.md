@@ -14,13 +14,13 @@
 </div>
 <p align="center">
 
-  <img width="570" height="570" alt="image" src="https://files.catbox.moe/gj3xve.png" />
+  <img width="570" height="570" alt="image" src="https://files.catbox.moe/zcf5wk.jpg" />
   </div>
 
   <p align="center">
     <a
 
-  credits to @adanmwere on discord.
+  
   </div>
 
   <p align="center">
