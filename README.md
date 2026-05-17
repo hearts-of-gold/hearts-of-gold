@@ -14,7 +14,7 @@
 </div>
 <p align="center">
 
-  <img width="570" height="570" alt="image" src="https://files.catbox.moe/zcf5wk.jpg" />
+  <img width="570" height="570" alt="image" src="https://files.catbox.moe/6j6j1s.png" />
   </div>
 
   <p align="center">
