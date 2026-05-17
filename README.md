@@ -32,7 +32,7 @@
  <p align="center">
    <a
 
-Fair warning, i tend to have trouble with my emotions, so i can snap at people easily, or get easily emotional. it's never in between. i am also a yumeshipper, and i tend to get jealous over my favorite characters. dbls of Bucky, dni pls. I have a problem with Sharing. If you don't like it, please either block me and hide me, and not make a huge deal out of it. i am mentally ill, so please iwcare at all times.
+Fair warning, i tend to have trouble with my emotions, so i can snap at people easily, or get easily emotional. it's never in between. i am also a yumeshipper, and i tend to get jealous over my favorite characters. I have a problem with Sharing. If you don't like it, please either block me and hide me, and not make a huge deal out of it. i am mentally ill, so please iwcare at all times.
 </div>
 
 <p align="center">
